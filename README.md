@@ -1,6 +1,6 @@
-### Hi there 👋
+### Hi there! ⚡️
 
-<img src="https://1.bp.blogspot.com/-5_J9JU8bJk8/V1BbPM93McI/AAAAAAAADLw/vD6m5Dpuy84SBCFdHU1KUt1CIj9RA8PfwCLcB/s1600/minion%2Bon%2Bcomputer.gif">
+<img src="https://media1.tenor.com/images/e02953e1157f0e2eb347fd1f5192e996/tenor.gif?itemid=13098847">
 
 <!--
 **julistary/julistary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
