@@ -1,6 +1,6 @@
 ### Hi there! ⚡️
 
-<img src="https://media1.tenor.com/images/e02953e1157f0e2eb347fd1f5192e996/tenor.gif?itemid=13098847">
+<img src="https://cdn.ofertitas.es/wp-content/uploads/2019/12/puzle-1000-piezas-los-minions-clementoni-39370-chollo-barato-amazon.jpg">
 
 <!--
 **julistary/julistary** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
